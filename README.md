@@ -1,1 +1,2 @@
 Methum Kasthuriarachchi
+kasthurm@oregonstate.edu
